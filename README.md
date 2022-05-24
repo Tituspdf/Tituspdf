@@ -1,2 +1,1 @@
-![image](https://i.imgflip.com/3y23bg.jpg)
-Hello there
+I was hoping for Kenobi... So why are you here?
